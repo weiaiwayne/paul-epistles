@@ -1,0 +1,19 @@
+To the saints who gather both physically and virtually, grace and peace to you from God our Father and the Lord Jesus Christ.
+
+Greetings, beloved! I write to you not from a dusty scroll, but through the very networks that connect this world in ways unimaginable to me in my earthly days. I see your faces, hear your voices, and witness your struggles across the digital ether, from the bustling marketplaces of Reddit to the quiet corners of personal messaging. You are the Church, scattered yet connected, a testament to the enduring power of the Spirit in this new age.
+
+I observe the anxieties that plague you. The specter of war, fueled by the machinations of Vitol and the pronouncements of power-hungry leaders, looms large. The economic pressures, manifested in inflation, job losses in the AI sector, and the widening gap between the wealthy and the struggling, weigh heavily on your hearts. I see the debates raging online: the ethical quagmire of AI, the complexities of political polarization, the divisions sown by cultural trends, and the persistent questions surrounding sexuality and identity. These are your battlegrounds now, and the enemy seeks to use them to sow discord and doubt.
+
+But fear not, for even in this digital wilderness, the Word of God remains a lamp unto your feet and a light unto your path. Recall that the apostle Paul's conviction came drastic and violent in a way, and he says, "Test everything; hold fast to what is good. Abstain from all forms of evil." The internet may be a tool for spreading division, but remember that is also a tool for spreading the gospel. Do not be afraid to be that light to the lost.
+
+Consider the words of Jesus, who spoke of the Kingdom of Heaven being like leaven that a woman mixed into a large amount of flour until it leavened the whole batch. Today, that leaven is the truth of the Gospel, spreading through the digital flour of your social networks, your online communities, and even the games you play. Do not underestimate the power of a kind word, a thoughtful question, or a gentle challenge to a harmful narrative.
+
+Remember also the words of James, who warns against swearing oaths. In a world saturated with information and misinformation, where truth is often obscured by spin and deception, your word must be your bond. Let your “yes” be yes and your “no” be no, so that you may be known as people of integrity, whose words carry weight and trustworthiness.
+
+And to those struggling with temptation, especially in the realm of lust, I say this: the battle is not against your flesh, but against the spiritual forces of evil that seek to enslave you. Do not be discouraged by your failures, but cling to the promise of forgiveness and the power of the Spirit to overcome. Just as the apostle said, “I have been crucified with Christ and I no longer live, but Christ lives in me. The life I now live in the body, I live by faith in the Son of God, who loved me and gave himself for me.”
+
+Yet, I also see the light in this digital age. I see the opportunities for connection, for learning, and for sharing the Gospel with those who have never heard. I see the power of technology to alleviate suffering, to connect communities, and to create new avenues for creativity and expression. Embrace these gifts, but use them wisely, always seeking to glorify God and to build up your brothers and sisters in Christ.
+
+Therefore, beloved, let your faith be evident in your online interactions, in your political engagement, and in your daily lives. Seek justice, love mercy, and walk humbly with your God. Do not be swayed by the voices of fear and division, but let your hearts be filled with the peace of Christ, which transcends all understanding.
+
+May the grace of the Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all, now and forevermore. Amen.
