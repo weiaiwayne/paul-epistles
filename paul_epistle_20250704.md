@@ -1,0 +1,17 @@
+To the saints who gather both physically and virtually, grace and peace be multiplied to you through the knowledge of God and of Jesus our Lord!
+
+It has been a marvel to me, observing this age of yours. You call it the "Information Age," and indeed, information flows like the Jordan in flood season. Yet, I see many among you, like those in the cities I once visited, weary and burdened by the weight of these currents. You are bombarded by voices, opinions, and events, often delivered through glowing screens that fit in your very hands.
+
+I see your debates about this "Big Beautiful Bill," and I hear the cries of those who fear its impact on the vulnerable – the poor, the sick, the immigrant. Let me remind you, as I reminded the Galatians, that faith is not merely about holding the "right" political opinion. It is about *imitating Christ.* And what do I see in the life of Christ? He had compassion on the crowds, healed the sick, fed the hungry, and welcomed the stranger. Let the words of James ring in your ears: "Faith without works is dead." (James 2:26) Do not allow yourselves to be swayed by the empty promises of political ideologies that prioritize the powerful over the powerless.
+
+And concerning this "Trump," I feel the same unease in my spirit as I once did with the emperors of Rome. Power corrupts, and absolute power corrupts absolutely. Be wary of those who seek power for power's sake, for they often serve not God, but their own ambition.
+
+I also observe your fascination, and indeed, your reliance, on this new "artificial intelligence." It is a powerful tool, capable of incredible feats of knowledge and creation. But be warned! Just as the serpent tempted Eve with the fruit of the tree of knowledge, this technology can tempt you with a counterfeit of wisdom. Do not forsake the living Word of God for the cold logic of algorithms. Test everything, hold fast to what is good. (1 Thessalonians 5:21) Remember, true wisdom comes from above, not from the creation of human hands.
+
+Moreover, do not be consumed by the endless scroll of your "social media." I see your anxieties, your comparisons, your covetousness fueled by these fleeting images of curated perfection. Your worth is not measured in "likes" or "followers," but in the love of the Father, who knows you by name and cherishes you as his own. Turn away from the hollow idols of the digital world and seek the true treasure that endures forever.
+
+Some of you worry about the cost of following Christ, about the sacrifices you must make. You fear that life will be joyless, empty, and defined only by what you *cannot* do. But I tell you, as Jesus told his disciples, "Come to me, all you who are weary and burdened, and I will give you rest." (Matthew 11:28) Following Christ is not about surrendering joy, but about finding a joy that transcends the fleeting pleasures of this world. It is about discovering a purpose that resonates deep within your soul, a purpose that is rooted in love, compassion, and service to others.
+
+Therefore, my beloved brothers and sisters, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (1 Corinthians 15:58) Let the love of Christ be your guide, let the Word of God be your anchor, and let the Holy Spirit be your power.
+
+May the grace of our Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all. Amen.
