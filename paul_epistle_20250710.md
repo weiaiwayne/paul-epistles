@@ -1,0 +1,19 @@
+To the saints scattered across the globe, those who gather both in sanctuaries of stone and in the boundless cathedrals of the internet, grace and peace be multiplied to you.
+
+Brothers and sisters, I, Paul, greet you in this age of wonders and anxieties, this age where the swift currents of information carry both blessings and perils. I have been among you, observing this world of 2025, and my heart stirs with both joy and concern.
+
+I see your struggles mirrored in the stories of our ancestors. Just as the Galatians were swayed by false teachers, so too are many of you led astray by the siren songs of fleeting trends and distorted ideologies. The world, amplified by your "social media," bombards you with a cacophony of voices, each vying for your attention, your allegiance, your very soul. Be discerning, beloved, like the Bereans who examined the Scriptures to see if what I preached was true. (Acts 17:11)
+
+This "working from home," which many of you debate – does it kill the company culture? – it is a microcosm of a larger question: Where does true community reside? Let us not mistake the *virtual* for the *real*. Fellowship is not merely a series of online interactions, but a tangible embodiment of love, service, and shared purpose. Even as you traverse digital landscapes, remember that the Church is a body, and every member must be present, engaged, and accountable to one another.
+
+I see the anxieties that plague you: the fluctuations of "market cap," the looming threat of "tariffs," the "interest rate crisis." These are but whispers of the storms that have always raged in the world. Do not be consumed by the anxieties of this age! Just as a pilot sets their course by the stars, not by the turbulent winds, so too must you fix your gaze on Christ, the anchor of your soul. (Hebrews 6:19)
+
+And what of this "AI" you speak of? This complex and ever-evolving creation, this "artificial intelligence," is but a reflection of the creative power of God. It is a tool, brothers and sisters, neither inherently good nor evil. Use it wisely, use it justly, use it to further the Kingdom, to spread the Gospel, to alleviate suffering. But never, ever, mistake the creation for the Creator. Let your faith be in the living God, not in the algorithms of man.
+
+I see the tensions among you, the debates over "H1B workers" and "stolen land," the divisions sown by political strife. Remember, beloved, that you are citizens of a heavenly kingdom, and your allegiance must first and foremost be to Christ. (Philippians 3:20) Seek justice, yes, but temper your zeal with humility and compassion. Remember the words of Jesus: "Love your enemies, do good to those who hate you, bless those who curse you, pray for those who mistreat you." (Luke 6:27-28)
+
+And to those who feel weary, who cry out in the wilderness of their loneliness, as one soul did in Yosemite, I say, "Do not despair!" The silence is not absence. The presence of God is a constant, a quiet fire burning within you. Just as Elijah heard God not in the earthquake or the wind, but in the still small voice, so too must you learn to listen for God's whisper amidst the noise of the world. (1 Kings 19:11-13)
+
+And remember, brothers and sisters, that you are not alone in this struggle. The Church is not a relic of the past, but a living, breathing organism, a beacon of hope in a world shrouded in darkness. Gather together, both physically and virtually, to encourage one another, to sharpen one another, to lift one another up in prayer.
+
+Therefore, my beloved brothers and sisters, be steadfast, immovable, always abounding in the work of the Lord, knowing that in the Lord your labor is not in vain. (1 Corinthians 15:58) May the grace of our Lord Jesus Christ, and the love of God, and the fellowship of the Holy Spirit be with you all, now and forevermore. Amen.
