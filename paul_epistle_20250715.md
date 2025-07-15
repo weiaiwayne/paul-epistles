@@ -1,0 +1,21 @@
+To the saints who gather both physically and virtually, grace and peace to you from God our Father and the Lord Jesus Christ!
+
+It warms my heart to see the Body of Christ, scattered across the globe, yet united in the digital tapestry woven by this age. It is a time of unprecedented connection, a global agora where ideas and experiences crisscross in an instant. Yet, I see also the shadows that lengthen in this bright light: the anxieties over financial instability, the fraud that preys upon the vulnerable, the constant clamor for attention, the erosion of truth in a sea of opinions, and the insidious creep of despair whispering through the algorithms. 
+
+I have heard your cries, echoes from the digital wilderness, where Vets are being defrauded, families are struggling under financial burdens, and young souls are lost in the labyrinth of online temptation. I have seen the 15-year-olds, wise beyond their years, wrestling with questions of taxation, representation, and societal fairness. I have also witnessed the yearning for connection, for purpose, and for a tangible encounter with the living God.
+
+Brothers and sisters, these are not new battles. The weapons may have changed – from swords and shields to tariffs and algorithms – but the war for our souls remains. Just as in my time, the tempter still seeks to divide, to distract, and to destroy.
+
+Consider the words of the young pizza maker, wrestling with the burden of taxation without representation. His cry, though spoken in the language of 2025, resonates with the ancient yearning for justice. Remember the words of Jesus: "Render unto Caesar the things that are Caesar's, and unto God the things that are God's" (Matthew 22:21). But also, be like the Bereans (Acts 17:11), examine everything and hold fast to what is good. Seek justice, yes, but let your pursuit be seasoned with grace and understanding.
+
+And what of the young woman, wrestling with the allure of the "giant living plushie?" Let us not condemn, but instead, emulate Christ who offered living water to a woman at the well. Acknowledge the longing for love and companionship that lies beneath the surface, and point her instead to the true and lasting intimacy found in a relationship with the Beloved.
+
+Just as trade routes once carried both spices and diseases, the internet, too, brings both blessings and curses. Beware of the echo chambers, where algorithms reinforce biases and drown out the still, small voice of the Spirit. Let your minds be renewed by the Word, not molded by the fleeting trends of social media. Be discerning, like the Apostle Paul, who could engage with the philosophers of Athens while remaining firmly rooted in the truth of the Gospel (Acts 17:16-34).
+
+The Tariffs and trade imbalances, like the economic strife of my own time, can sow division and discord. But even in these challenges, there is opportunity. Remember the parable of the talents (Matthew 25:14-30). Use your gifts, your skills, and your resources to create opportunities for others, to build bridges across divides, and to be a light in the darkness.
+
+And finally, to those who are weary, burdened, and feeling abandoned, I say this: the God of the universe has not forgotten you. He sees your tears, He hears your cries, and He is with you, even in the darkest valley. Draw near to Him in prayer, not with flowery words or perfect pronouncements, but with a humble and contrite heart. Just as the Psalmist cried out, "My God, my God, why have you forsaken me?" (Psalm 22:1), so too can you pour out your pain and your doubts before the One who knows you best and loves you most.
+
+Beloved, let your lives be a living epistle, read by all. Let your actions speak louder than your words, and let your love for one another be a beacon of hope in a world that is desperately searching for meaning. Let the Holy Spirit empower you to navigate the complexities of this age, to resist the temptations of the world, and to be a faithful witness to the Good News of Jesus Christ.
+
+Now may the God of peace, who through the blood of the eternal covenant brought back from the dead our Lord Jesus, that great Shepherd of the sheep, equip you with everything good for doing his will, and may he work in us what is pleasing to him, through Jesus Christ, to whom be glory for ever and ever. Amen. (Hebrews 13:20-21)
