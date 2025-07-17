@@ -1,0 +1,25 @@
+To the saints who gather both physically and virtually, grace and peace be multiplied to you through the knowledge of God and of Jesus our Lord!
+
+Greetings from this unexpected sojourn into your… *digital* age. I have seen much in these last few days, marveling at the speed of your communications, the breadth of your knowledge, and the depth of your… *discussions*. It is a world connected in ways I could scarcely imagine, yet often fractured by the very means that should unite you.
+
+I have observed your “social media,” a vast marketplace of ideas, where truth and falsehood jostle for attention, much like the marketplace of Ephesus, only amplified a thousandfold. I see how readily a single spark of misinformation can ignite a wildfire of division, and how easily voices of reason are drowned out by the clamor of opinions. Remember, beloved, as it is written in 1 Thessalonians 5:21, "Test all things; hold fast what is good." Do not be swept away by every trending opinion, but examine it with the light of Scripture and the guidance of the Holy Spirit.
+
+I have also witnessed the rise of "AI," a creation of your own ingenuity, capable of both astounding feats and unforeseen consequences. Some fear it as a harbinger of doom, others embrace it as the key to a utopian future. But let us not be deceived. Just as the tools of my time – the sword, the plow, the ship – could be used for good or ill, so too is this “AI.” Its worth lies not in its potential power, but in the hearts and hands that wield it. Use your intelligence, your creativity, and your faith to direct these new technologies toward justice, compassion, and the furtherance of the Gospel. Do not let them become idols, consuming your time and attention, or instruments of oppression, perpetuating falsehoods and division.
+
+I have read your “threads,” your “Substack,” and your various online exchanges. I have seen your anxieties about economic inequities, pharmaceutical supply chains, and political instability. I have seen your fears of tyrannical leaders, manipulated markets, and a world spiraling out of control. These are weighty concerns, indeed, and they echo the same anxieties that troubled the early church – persecution, famine, false prophets, and the ever-present threat of Roman oppression.
+
+Yet, even in the face of such uncertainty, our hope remains steadfast. Remember the words of Jesus in Matthew 6:33-34: "But seek first his kingdom and his righteousness, and all these things will be given to you as well. Therefore, do not worry about tomorrow, for tomorrow will worry about itself. Each day has enough trouble of its own."
+
+Do not be consumed by fear of what *might* happen, but focus on what *must* happen – love God, love your neighbor, and spread the Gospel. Let your actions be guided by faith, not by fear. Prepare yourselves, yes, but not through hoarding or isolation, but through prayer, community, and acts of service.
+
+I see also your struggles with personal sin, the allure of worldly desires, and the constant battle against temptation. You ask about masturbation, about homosexuality, about anger, and about doubt. These are age-old struggles, beloved, but they are no less real in this digital age. Remember, as it is written in 1 Corinthians 10:13: "No temptation has overtaken you except what is common to mankind. And God is faithful; he will not let you be tempted beyond what you can bear. But when you are tempted, he will also provide a way out so that you can endure it."
+
+Seek accountability, pray for strength, and fill your minds with the truth of God's Word. Recognize that your identity is not found in your desires, but in your relationship with Christ. And remember, grace is sufficient.
+
+Finally, I see your longing for authentic community, for a place where you can belong and grow without judgment or hypocrisy. This is a valid desire, beloved, for we were created for fellowship. But do not be discouraged if you struggle to find such a place in the churches of your time. Remember that the Church is not a building, but a body – a living organism composed of imperfect people striving toward holiness. Seek out those who genuinely love God and love their neighbor, regardless of their denominational label or their online presence. Build your own communities of faith, where you can encourage one another, challenge one another, and grow together in the grace and knowledge of our Lord Jesus Christ.
+
+Therefore, my beloved brothers and sisters, stand firm. Let nothing move you. Always give yourselves fully to the work of the Lord, because you know that your labor in the Lord is not in vain (1 Corinthians 15:58).
+
+May the grace of our Lord Jesus Christ, the love of God, and the fellowship of the Holy Spirit be with you all, both in the physical and the digital realms, now and forevermore. Amen.
+
+Paul, a servant of Christ Jesus.
